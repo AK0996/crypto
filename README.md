@@ -1,1 +1,4 @@
 # crypto
+#meme
+#trade
+#Invest
